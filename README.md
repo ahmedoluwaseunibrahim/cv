@@ -10,15 +10,17 @@ braskyconnect7gmail.com
 
  ## Experience
 
-Sep. 2024 - Nov. 2024                            CSCS/SOL - Grand oak Oregun, Lagos - Supervisor 
+Jan. 2025 - Mar. 2025                            TECH 365 Ikeja - Data Analyst
 
-May. 2024 - Sep. 2024                            CSCS/SOL Lexcel group Ota, Ogun - Supervisor 
+Sep. 2024 - Nov. 2024                            CSCS/SOL - Grand oak Oregun, Lagos - Supervisor Data Document management 
 
-May. 2024 - Sep. 2024                            CSCS/SOL Lexcel group Ota, Ogun - Supervisor 
+May. 2024 - Sep. 2024                            CSCS/SOL Lexcel group Ota, Ogun - Supervisor Data Document management 
 
-May. 2021 - Dec. 2022                            CSCS/SOL- Polaris  Ilupeju,Lagos-Document management 
+May. 2024 - Sep. 2024                            CSCS/SOL Lexcel group Ota, Ogun - Supervisor Data Document management 
 
-Oct. 2018 - Jan. 2022                            CSCS/ICS-PZ Cussons  Ilupeju,Lagos. Document management
+May. 2021 - Dec. 2022                            CSCS/SOL- Polaris  Ilupeju,Lagos-Data Document management 
+
+Oct. 2018 - Jan. 2022                            CSCS/ICS-PZ Cussons  Ilupeju,Lagos- Data Document management
 
 May. 2014 - Aug. 2017                            Music Factory Studio, Festac Town, Voice over artist 
 
